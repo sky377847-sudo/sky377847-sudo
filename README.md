@@ -4,20 +4,36 @@ details <p align="center">
   <img src="https://i.postimg.cc/B6hNfqgh/74cdb02e230bb06aed3950a84065cc05-webp.webp" width="250">
 </p>
          ──── ୨୧ ────
-I’m not someone who interacts all the time    
-or responds to every conversation right away    
-  
-unless we’re actually close or have some kind of connection before    
-  
-It doesn’t mean I don’t want to talk    
-sometimes I just get lost in my own world    
-  
-and spend most of my time on my phone or listening to music    
-  
-so I might reply late or be a bit quiet sometimes                                   Therefore, I prefer being alone and I like quiet places.  
+I’m not someone who is constantly active in conversations or able to respond to every message right away.
 
-I might not always know what to say  
-but I do pay attention to the little things  
+Unless we’re already close, have spoken before, or have built some level of trust with each other, I may come across as quiet, distant, or difficult to approach at first.
 
-If we get closer, you’ll see a different side of me  
-just takes a bit of time And please respect my friends' privacy, as well as mine. ^⁠_⁠^ ──── ୨୧ ────
+That doesn’t mean I dislike talking to people.
+
+The truth is that I spend a lot of time in my own thoughts. Sometimes I get lost in daydreams, music, games, stories, or simply whatever happens to catch my interest at the moment.
+
+Most of my free time is usually spent on my phone, listening to music, exploring things I enjoy, or enjoying my own company in silence.
+
+Because of this, I may reply late, disappear for a while, or become quiet without any particular reason. Please don't assume that I'm ignoring you or that you've done something wrong.
+
+I simply need more time alone than most people do.
+
+I enjoy peaceful environments and quiet places. Loud, chaotic, or overwhelming situations can be exhausting for me, so I often prefer calm spaces where I can think and feel comfortable.
+
+I am also a Highly Sensitive Person (HSP), which means I tend to notice small details, pick up on emotions easily, and feel things more deeply than many people realize.
+
+Words, tone, and small actions can leave a lasting impression on me, whether positive or negative.
+
+I may not always know the right thing to say, and sometimes it takes me a while to express myself properly.
+
+However, I genuinely pay attention to the little things and often remember details that others might overlook.
+
+If we spend enough time together and get to know each other better, you'll probably discover a different side of me.
+
+I can be warm, caring, playful, and talkative around people I trust.
+
+Building that trust simply takes time.
+
+Please be kind, patient, and respectful of personal boundaries — not only mine, but also those of my friends and the people I care about.
+
+Thank you for taking the time to read this. ^_^
