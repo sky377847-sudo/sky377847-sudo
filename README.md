@@ -21,7 +21,4 @@ I might not always know what to say
 but I do pay attention to the little things  
 
 If we get closer, you’ll see a different side of me  
-just takes a bit of time And please respect my friends' privacy, as well as mine.──── ୨୧ ────
-I have loved tigers since I was a child because they are strong, beautiful, and independent animals. What fascinates me the most is that tigers usually live alone rather than in groups. They are calm, self-reliant, and comfortable with their own company.
-In some ways, I feel similar to them. I enjoy having my own space and sometimes prefer quiet environments over large crowds. Like a tiger, I may not always be the most outgoing person, but I am observant, thoughtful, and comfortable being myself. Tigers do not need a group to define who they are, and I admire that sense of independence.
-Their graceful yet powerful nature has always inspired me. That is why the tiger has remained my favorite animal since childhood—it reflects qualities that I admire and, in some ways, see in myself. ^⁠_⁠^ And thank you for reading. 
+just takes a bit of time And please respect my friends' privacy, as well as mine. ^⁠_⁠^ ──── ୨୧ ────
