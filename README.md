@@ -10,7 +10,7 @@ Unless we’re already close, have spoken before, or have built some level of tr
 
 That doesn’t mean I dislike talking to people.
 
-The truth is that I spend a lot of time in my own thoughts. Sometimes I get lost in daydreams, music, games, stories, or simply whatever happens to catch my interest at the moment.
+The truth is that I spend a lot of time in my own thoughts. Sometimes I get lost in daydreams, music, games, ,or simply whatever happens to catch my interest at the moment.
 
 Most of my free time is usually spent on my phone, listening to music, exploring things I enjoy, or enjoying my own company in silence.
 
