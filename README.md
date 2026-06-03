@@ -36,9 +36,3 @@ Building that trust simply takes time.
 
 Please be kind, patient, and respectful of personal boundaries — not only mine, but also those of my friends 
 Thank you for taking the time to read this. ^_^
-Sometimes, I feel like I'm only needed when someone is having a hard time.
-Many people come to me when they need comfort, support, or someone to listen to them. I don't mind being there for others, and I genuinely care about the people in my life.
-But deep down, there are moments when I wonder if I'm seen as more than just a source of comfort. Sometimes, after someone feels better, it feels like I slowly fade into the background again.
-I'm not saying that anyone is intentionally using me. In fact, I don't think most people realize how I feel. It's just a quiet feeling that stays in the back of my mind and follows me through many of my interactions.
-It's difficult to explain. I just sometimes feel as though I'm easier to remember when someone needs help than when everything is going well.
-Maybe I'm wrong. Maybe it's just my own fears and insecurities speaking. But it's a feeling I've carried for a long time, and it can be painful sometimes...
