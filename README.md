@@ -23,7 +23,7 @@ I might not always know what to say
 but I do pay attention to the little things  
 
 If we get closer, you’ll see a different side of me  
-just takes a bit of time──── ୨୧ ────
+just takes a bit of time And please respect my friends' privacy, as well as mine.──── ୨୧ ────
 <p align="center">
   <img src="https://i.postimg.cc/DfJrH0PK/f60795f106ac914bacc6769095cf7b75-webp.webp" width="100%">
 </p> I have loved tigers since I was a child because they are strong, beautiful, and independent animals. What fascinates me the most is that tigers usually live alone rather than in groups. They are calm, self-reliant, and comfortable with their own company.
