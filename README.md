@@ -34,14 +34,5 @@ I can be warm, caring, playful, and talkative around people I trust.
 
 Building that trust simply takes time.
 
-Please be kind, patient, and respectful of personal boundaries — not only mine, but also those of my friends and the people I care about.
-One thing people often misunderstand about me is that because I enjoy being alone, they assume I dislike people or never feel lonely.
-The truth is a little different.
-I genuinely enjoy my own company. I find comfort in quiet places, peaceful moments, listening to music, and spending time in my own thoughts. Being alone helps me recharge, organize my feelings, and feel at ease when the world becomes overwhelming.
-However, enjoying solitude does not mean I never get lonely.
-There are moments when I wish I had someone to talk to, someone to share my thoughts with, or simply someone who understands my silence without expecting me to constantly speak. Sometimes I disappear into my own world, but that does not mean I do not appreciate companionship.
-I may take longer to open up than most people, and I may seem distant at first. This is not because I dislike others. I simply need time to feel comfortable and safe around someone.
-I value genuine connections more than frequent interactions. I would rather have a few meaningful conversations than many shallow ones.
-If I am quiet, please do not assume that I am angry, upset, or uninterested. Most of the time, I am simply thinking, observing, listening, or enjoying the moment in my own way.
-All I ask is a little patience and understanding.
+Please be kind, patient, and respectful of personal boundaries — not only mine, but also those of my friends 
 Thank you for taking the time to read this. ^_^
