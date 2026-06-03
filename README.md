@@ -14,8 +14,7 @@ sometimes I just get lost in my own world
   
 and spend most of my time on my phone or listening to music    
   
-so I might reply late or be a bit quiet sometimes                                   I prefer calm and quiet spaces  
-and I’m more comfortable listening 
+so I might reply late or be a bit quiet sometimes                                   Therefore, I prefer being alone and I like quiet places.  
 
 I might not always know what to say  
 but I do pay attention to the little things  
