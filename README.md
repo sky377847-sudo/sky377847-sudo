@@ -34,5 +34,12 @@ I can be warm, caring, playful, and talkative around people I trust.
 
 Building that trust simply takes time.
 
-Please be kind, patient, and respectful of personal boundaries — not only mine, but also those of my friends 
+Please be kind, patient, and respectful of personal boundaries — not only mine, but also those of my friends If I don’t come to talk to you or start a conversation, it doesn’t mean I dislike you.  
+I’m just naturally shy and sometimes feel nervous when interacting with others.
+
+I find it a bit difficult to keep conversations going or respond properly, especially when we’re not close yet.  
+
+I also don’t have many friends, so I tend to get attached to people easily and sometimes feel a little jealous without meaning to.  
+
+Even so, I always try my best not to bother anyone or make them uncomfortable.
 Thank you for taking the time to read this. (⁠｡⁠•́⁠︿⁠•̀⁠｡⁠)
