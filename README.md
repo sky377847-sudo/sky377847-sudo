@@ -35,4 +35,4 @@ I can be warm, caring, playful, and talkative around people I trust.
 Building that trust simply takes time.
 
 Please be kind, patient, and respectful of personal boundaries — not only mine, but also those of my friends 
-Thank you for taking the time to read this. ^_^
+Thank you for taking the time to read this. (⁠｡⁠•́⁠︿⁠•̀⁠｡⁠)
