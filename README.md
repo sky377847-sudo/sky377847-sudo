@@ -46,7 +46,7 @@ I often find myself trying to solve problems in friendships, even when I don’t
 When conflicts happen, I tend to take responsibility and do my best to fix things with all I have.
 
 I’m not very expressive, so sometimes misunderstandings happen without me realizing it.  
-People might misread my silence or my way of reacting, which can lead to unintended arguments. Sometimes I feel like I might accidentally distance myself from people without any real reason.  
+People might misread my silence or my way of reacting, which can lead to unintended arguments. Sometimes I unintentionally distance myself from my friends. 
 It’s not that I’m ignoring them or don’t care.
 
 I always try my best to prevent misunderstandings between me and my friends.  
