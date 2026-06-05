@@ -42,4 +42,21 @@ I find it a bit difficult to keep conversations going or respond properly, espec
 I also don’t have many friends, so I tend to get attached to people easily and sometimes feel a little jealous without meaning to.  
 
 Even so, I always try my best not to bother anyone or make them uncomfortable.
-Thank you for taking the time to read this. (⁠｡⁠•́⁠︿⁠•̀⁠｡⁠)
+I often find myself trying to solve problems in friendships, even when I don’t really mean to.  
+When conflicts happen, I tend to take responsibility and do my best to fix things with all I have.
+
+I’m not very expressive, so sometimes misunderstandings happen without me realizing it.  
+People might misread my silence or my way of reacting, which can lead to unintended arguments. Sometimes I feel like I might accidentally distance myself from people without any real reason.  
+It’s not that I’m ignoring them or don’t care.
+
+I always try my best to prevent misunderstandings between me and my friends.  
+I put a lot of effort into fixing problems whenever they happen, even when I didn’t mean to cause them in the first place.
+
+But no matter how hard I try, I often feel like it’s still not enough.  
+It makes me feel like I’m not good enough at keeping things from falling apart.
+
+I just want to say to my friends that I really am trying my best to avoid conflicts or misunderstandings between us.  
+But sometimes… this is really all I can do.
+
+Even though I always try my best to make things right, it still hurts me deeply when things go wrong.  
+I care a lot about the people around me, so these situations affect me more than I usually show. Thank you for taking the time to read this. (⁠｡⁠•́⁠︿⁠•̀⁠｡⁠)
