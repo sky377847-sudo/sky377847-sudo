@@ -1,9 +1,6 @@
 #Hello everyone and Please read the details about me. If you would like to talk to me or come to see me.   
-  
-details <p align="center">
-  <img src="https://i.postimg.cc/B6hNfqgh/74cdb02e230bb06aed3950a84065cc05-webp.webp" width="250">
-</p>
-         ──── ୨୧ ────
+                                        [![73d26a91175c4c29db0d7a4d3e0b5b12.jpg](https://i.postimg.cc/qRS7wz6p/73d26a91175c4c29db0d7a4d3e0b5b12.jpg)](https://postimg.cc/yghBY6TG)                                        
+[![d683bde764f623f8888598a4fc995e73.jpg](https://i.postimg.cc/MH9QzWnX/d683bde764f623f8888598a4fc995e73.jpg)](https://postimg.cc/zHRBjYS1)                                                 [![b64c715f106c1c539277a517bc9e4a61.jpg](https://i.postimg.cc/HLmsvqL0/b64c715f106c1c539277a517bc9e4a61.jpg)](https://postimg.cc/mPdst6Ch)                                               ──── ୨୧ ────
 I’m not someone who is constantly active in conversations or able to respond to every message right away.
 
 Unless we’re already close, have spoken before, or have built some level of trust with each other, I may come across as quiet, distant, or difficult to approach at first.
