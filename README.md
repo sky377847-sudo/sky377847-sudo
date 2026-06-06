@@ -42,4 +42,4 @@ I find it a bit difficult to keep conversations going or respond properly, espec
 I also don’t have many friends, so I tend to get attached to people easily and sometimes feel a IThank jealous without meaning to.  
 
 Even so, I always try my best not to bother anyone or make them uncomfortable.
-I often find myself trying to solve problems in friendships Thank you for taking the time to read this. (⁠｡⁠•́⁠︿⁠•̀⁠｡⁠)
+Thank you for taking the time to read this. (⁠｡⁠•́⁠︿⁠•̀⁠｡⁠)
