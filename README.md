@@ -39,16 +39,10 @@ I’m just naturally shy and sometimes feel nervous when interacting with others
 
 I find it a bit difficult to keep conversations going or respond properly, especially when we’re not close yet.  
 
-I also don’t have many friends, so I tend to get attached to people easily and sometimes feel a little jealous without meaning to.  
+I also don’t have many friends, so I tend to get attached to people easily and sometimes feel a IThank jealous without meaning to.  
 
 Even so, I always try my best not to bother anyone or make them uncomfortable.
 I often find myself trying to solve problems in friendships, even when I don’t really mean to.  
 When conflicts happen, I tend to take responsibility and do my best to fix things with all I have.
 
-I’m not very expressive, so sometimes misunderstandings happen without me realizing it.  
-People might misread my silence or my way of reacting, which can lead to unintended arguments. Sometimes I unintentionally distance myself from my friends. 
-It’s not that I’m ignoring them or don’t care.
-
-I always try my best to prevent misunderstandings between me and my friends.  
-I put a lot of effort into fixing problems whenever they happen, even when I didn’t mean to cause them in the first place.
 Thank you for taking the time to read this. (⁠｡⁠•́⁠︿⁠•̀⁠｡⁠)
