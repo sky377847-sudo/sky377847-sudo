@@ -42,7 +42,5 @@ I find it a bit difficult to keep conversations going or respond properly, espec
 I also don’t have many friends, so I tend to get attached to people easily and sometimes feel a IThank jealous without meaning to.  
 
 Even so, I always try my best not to bother anyone or make them uncomfortable.
-I often find myself trying to solve problems in friendships, even when I don’t really mean to.  
-When conflicts happen, I tend to take responsibility and do my best to fix things with all I have.
-
+I often find myself trying to solve problems in friendships, even when I don’t really mean to.
 Thank you for taking the time to read this. (⁠｡⁠•́⁠︿⁠•̀⁠｡⁠)
