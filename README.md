@@ -38,4 +38,4 @@ I find it a bit difficult to keep conversations going or respond properly, espec
 
 I also don’t have many friends, so I tend to get attached to people easily and sometimes feel a IThank jealous without meaning to.  
 
-Even so, I always try my best not to bother anyone or make them uncomfortable.                          [![062c46b6a0df189182c312ffe37a442c.jpg](https://i.postimg.cc/W1mNHNq0/062c46b6a0df189182c312ffe37a442c.jpg)](https://postimg.cc/Wd3cDPn4)           Thank you for taking the time to read this. (⁠｡⁠•́⁠︿⁠•̀⁠｡⁠)
+Even so, I always try my best not to bother anyone or make them uncomfortable.                          [![d031054d2ed274982a035f77283b6142.jpg](https://i.postimg.cc/QN5dTJx3/d031054d2ed274982a035f77283b6142.jpg)](https://postimg.cc/jCxTVN7g)          Thank you for taking the time to read this. (⁠｡⁠•́⁠︿⁠•̀⁠｡⁠)
