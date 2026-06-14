@@ -1,6 +1,10 @@
 #Hello everyone and Please read the details about me. If you would like to talk to me or come to see me.   
                                         [![00358d5d44c3925ee506366f2f850a29.jpg](https://i.postimg.cc/3wHykf2Q/00358d5d44c3925ee506366f2f850a29.jpg)](https://postimg.cc/68Y6S0HM)                                       
-[[![45ba9d5887f38deb1bdcc660060daccf.jpg](https://i.postimg.cc/RVz2bc7y/45ba9d5887f38deb1bdcc660060daccf.jpg)](https://postimg.cc/232H1LX7)          [![800711e3b72f21ff0d08a336fc8cefda.jpg](https://i.postimg.cc/hvhvkkRS/800711e3b72f21ff0d08a336fc8cefda.jpg)](https://postimg.cc/PvsdZFqc)                                           ──── ୨୧ ────
+<p align="center">
+  <img src="https://i.postimg.cc/7Lt5fdSV/c20803e2b345ad621ef9ba26012aa103.gif" width="300">
+</p>          
+
+[![800711e3b72f21ff0d08a336fc8cefda.jpg](https://i.postimg.cc/hvhvkkRS/800711e3b72f21ff0d08a336fc8cefda.jpg)](https://postimg.cc/PvsdZFqc)                                           ──── ୨୧ ────
 I’m not someone who is constantly active in conversations or able to respond to every message right away.
 
 Unless we’re already close, have spoken before, or have built some level of trust with each other, I may come across as quiet, distant, or difficult to approach at first.
@@ -18,7 +22,10 @@ I simply need more time alone than most people do.
 I enjoy peaceful environments and quiet places. Loud, chaotic, or overwhelming situations can be exhausting for me, so I often prefer calm spaces where I can think and feel comfortable.
 
 I am also a Highly Sensitive Person (HSP), which means I tend to notice small details, pick up on emotions easily, and feel things more deeply than many people realize.
-                                     [![4475d8c36658b46f39b50f8d3915a4af.jpg](https://i.postimg.cc/d1Ntj5Zq/4475d8c36658b46f39b50f8d3915a4af.jpg)](https://postimg.cc/0Mms8dC3)
+
+<p align="center">
+  <img src="https://i.postimg.cc/sgkfBWXZ/22b286c719e62445a8ef6f066ec8d483.gif" width="300">
+</p>
                                     Words, tone, and small actions can leave a lasting impression on me, whether positive or negative.
 
 I may not always know the right thing to say, and sometimes it takes me a while to express myself properly.
@@ -38,4 +45,12 @@ I find it a bit difficult to keep conversations going or respond properly, espec
 
 I also don’t have many friends, so I tend to get attached to people easily and sometimes feel a IThank jealous without meaning to.  
 
-Even so, I always try my best not to bother anyone or make them uncomfortable.                          [![d031054d2ed274982a035f77283b6142.jpg](https://i.postimg.cc/QN5dTJx3/d031054d2ed274982a035f77283b6142.jpg)](https://postimg.cc/jCxTVN7g) #My favorite game is dragon adventures/creatures of sonaria Thank you for taking the time to read this.
+Even so, I always try my best not to bother anyone or make them uncomfortable.                          
+<p align="center">
+  <img src="https://i.postimg.cc/L6FrZVBL/c89f8018439df746276fb34e59d098d2.gif" width="300">
+</p>
+
+
+#My favorite game is dragon adventures/creatures of sonaria Thank you for taking the time to read this.  
+
+
