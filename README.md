@@ -51,6 +51,6 @@ Even so, I always try my best not to bother anyone or make them uncomfortable.
 </p>
 
 
-#My favorite game is dragon adventures/creatures of sonaria Thank you for taking the time to read this.  
+#My favorite game is dragon adventures/creatures of sonaria And I play Minecraft too. Thank you for taking the time to read this.   
 
 
