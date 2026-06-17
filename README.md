@@ -51,6 +51,6 @@ Even so, I always try my best not to bother anyone or make them uncomfortable.
 </p>
 
 
-#My favorite game is dragon adventures/creatures of sonaria And I play Minecraft too. I mostly play Roblox games. I play alone because I'm more comfortable being by myself and playing my favorite game. And I am. 
+#My favorite game is dragon adventures/creatures of sonaria And I play Minecraft too. I mostly play Roblox games. and Minecraft I play alone because I'm more comfortable being by myself and playing my favorite game. And I am. 
 Psychology Enthusiast ^⁠_⁠^ Thank you for taking the time to read this.   
 
