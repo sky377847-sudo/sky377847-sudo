@@ -52,6 +52,6 @@ Even so, I always try my best not to bother anyone or make them uncomfortable.
 
 
 #My favorite game is dragon adventures/creatures of sonaria And I play Minecraft too. I mostly play Roblox games. and Minecraft I play alone because I'm more comfortable being by myself and playing my favorite game. And I love my freedom And I am. 
-Psychology Enthusiast ^⁠_⁠^ Thank you for taking the time to read this.   
+Psychology Enthusiast  Thank you for taking the time to read this.   
 
-My favorite song is hate that i made you love me Because it's like in my real life. 
+My favorite song is hate that i made you love me  
