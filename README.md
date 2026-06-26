@@ -54,8 +54,3 @@ Even so, I always try my best not to bother anyone or make them uncomfortable.
 #My favorite game is dragon adventures/creatures of sonaria And I play Minecraft too. I mostly play Roblox games. and Minecraft I play alone because I'm more comfortable being by myself and playing my favorite game. And I love my freedom And I am. 
 Psychology Enthusiast  Thank you for taking the time to read this.   
 
-and I have Panic Disorder.
-
-Panic Disorder is a mental health condition that causes sudden panic attacks. During a panic attack, I may experience a racing heartbeat, chest pain, shortness of breath, dizziness, trembling, sweating, nausea, and an intense feeling of fear or losing control. These symptoms can happen unexpectedly and can be very frightening, even when there is no real danger.
-I might cry while having these symptoms. 
-
