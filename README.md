@@ -21,7 +21,7 @@ I enjoy peaceful environments and quiet places. Loud, chaotic, or overwhelming s
 
 I am also a Highly Sensitive Person (HSP), which means I tend to notice small details, pick up on emotions easily, and feel things more deeply than many people realize.
 
-[![ea0de9894d815b8d91a8fca23a02519f.jpg](https://i.postimg.cc/qqrrPNz5/ea0de9894d815b8d91a8fca23a02519f.jpg)](https://postimg.cc/cgFPY47R)
+[![4914b980227a31c584687a561476e715.jpg](https://i.postimg.cc/GpRvGkzp/4914b980227a31c584687a561476e715.jpg)](https://postimg.cc/fVH3hSG4)
                                     Words, tone, and small actions can leave a lasting impression on me, whether positive or negative.
 
 I may not always know the right thing to say, and sometimes it takes me a while to express myself properly.
