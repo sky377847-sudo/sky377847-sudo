@@ -1,8 +1,6 @@
 #Hello everyone and Please read the details about me. If you would like to talk to me or come to see me.   
                                         [![00358d5d44c3925ee506366f2f850a29.jpg](https://i.postimg.cc/3wHykf2Q/00358d5d44c3925ee506366f2f850a29.jpg)](https://postimg.cc/68Y6S0HM)                                       
-<p align="center">
-  <img src="https://i.postimg.cc/7Lt5fdSV/c20803e2b345ad621ef9ba26012aa103.gif" width="300">
-</p>          
+[![8fd669cd96a6d1f0d5d209192c4ca42a.jpg](https://i.postimg.cc/YSSHkc2m/8fd669cd96a6d1f0d5d209192c4ca42a.jpg)](https://postimg.cc/QFvPkyTX)
 
 [![800711e3b72f21ff0d08a336fc8cefda.jpg](https://i.postimg.cc/hvhvkkRS/800711e3b72f21ff0d08a336fc8cefda.jpg)](https://postimg.cc/PvsdZFqc)                                           ──── ୨୧ ────
 I’m not someone who is constantly active in conversations or able to respond to every message right away.
@@ -23,9 +21,7 @@ I enjoy peaceful environments and quiet places. Loud, chaotic, or overwhelming s
 
 I am also a Highly Sensitive Person (HSP), which means I tend to notice small details, pick up on emotions easily, and feel things more deeply than many people realize.
 
-<p align="center">
-  <img src="https://i.postimg.cc/sgkfBWXZ/22b286c719e62445a8ef6f066ec8d483.gif" width="300">
-</p>
+[![ea0de9894d815b8d91a8fca23a02519f.jpg](https://i.postimg.cc/qqrrPNz5/ea0de9894d815b8d91a8fca23a02519f.jpg)](https://postimg.cc/cgFPY47R)
                                     Words, tone, and small actions can leave a lasting impression on me, whether positive or negative.
 
 I may not always know the right thing to say, and sometimes it takes me a while to express myself properly.
@@ -46,9 +42,7 @@ I find it a bit difficult to keep conversations going or respond properly, espec
 I also don’t have many friends, so I tend to get attached to people easily and sometimes feel a IThank jealous without meaning to.  
 
 Even so, I always try my best not to bother anyone or make them uncomfortable.                          
-<p align="center">
-  <img src="https://i.postimg.cc/L6FrZVBL/c89f8018439df746276fb34e59d098d2.gif" width="300">
-</p>
+[![f93398c5851b4a1324ce6c93cd566e48.jpg](https://i.postimg.cc/sgTp1SyF/f93398c5851b4a1324ce6c93cd566e48.jpg)](https://postimg.cc/NKryzK5b)
 
 
 #My favorite game is dragon adventures/creatures of sonaria And I play Minecraft too. I mostly play Roblox games. and Minecraft I play alone because I'm more comfortable being by myself and playing my favorite game. And I love my freedom And I am. 
